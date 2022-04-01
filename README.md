@@ -1,6 +1,6 @@
 # Gianlucca Santucho #
 
-![Texto alternativo](/Gim.jpeg "Título alternativo")
+![Gian en el gym](/Imagen%20Presentacion.jpeg "Gian en el gimnasio")
 
 ## Legajo: 2040505 ##
 
