@@ -1,6 +1,6 @@
 # Gianlucca Santucho #
 
-![img 1](C:\Users\GIANLUCCA\Desktop\UTN\Segundo Año\Paradigmas de programacion\Presentacion\Imagen Presentacion.jpeg "Gian en el gimnasio")
+![img 1](Imagen Presentacion.jpeg "Gian en el gimnasio")
 
 ## Legajo: 2040505 ##
 
