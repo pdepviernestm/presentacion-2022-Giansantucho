@@ -1,6 +1,6 @@
 # Gianlucca Santucho #
 
-![Gian en el gym](/Imagen%20Presentacion.jpeg "Gian en el gimnasio")
+![img 1](https://www.instagram.com/p/B5qdpnUl0Ryft1Vm5Y70LvqSfJpj1sgpAIP2cc0/ "Gian upd")
 
 ## Legajo: 2040505 ##
 
