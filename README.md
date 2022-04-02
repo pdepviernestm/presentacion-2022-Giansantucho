@@ -1,10 +1,10 @@
 # Gianlucca Santucho #
 
-![img 1](https://lh3.googleusercontent.com/1LST1CBvS9LYwM6EON_yL-ioehhX2TZMNUAzHCKHwN1l2z3ifFETCYGUHlBYqZScbsDp5CHScfh0DN5oVhO-03DB1iCjuYlQ2dKciaUSQ_yzeNIe1QHxu6A4V6FyxT-4bnrd8T60lm8h-usrEbO5XT0I1ycxmUEjpmedunvGgEhIH88KpyBoGnwkVJQsu4893XTpCtbmqIEqguLjIAWjSc3dF38y-WCqn2XnazhMxY0XDE54Dzsz-FbEpO1WdOiy7KqKuaxnxKJfGG4_Eg_NmZKfwKfzkr7qEGoPgf5jxKxgV9KvpESCWXkwbdjElE6UwEsEndoVzsmevJVL-VNQEzqSwhYh4KPNjdUnz30MHk09QzqNEwyVvRfQvQDeQmPryUzvBY7JnmuPvz2blJoEfx53ycv9Z0SAIGBWdzClnJ_j-1Gol03SKa_CYXOaXy0WCIdRGHV6PhIPl7LFsnHtfzxW1nSOtSQP6PbSRxaRQQ9kaBjkFcwI-c4HrI0nGkxH2zRoEtH2mCnelKepcCj_zmFIK0ofi14W74i1bu2P89RMSl5EfZtQ5cjYWpsA8mgL8xV2fmf6cd5JgI0LjnkaSTsg9ig8gVzZF8L3q6NnTQGnK19uHVT72rk-F0YyzhjmOhoVeQo8-VJJPtxorRS2eVsGfaJlHgkFOZ-IRpfdPM2YeQKc7DGuRYm4tsXIypPc9ESAPaXQmtNHN7zTZVt3gHLcgpqjNQDaUYoeSXgdX-X6U-6o4EfUg2JQ2Fk8mEgCQbbvRY6wuvXVFztIzmhMSxILi5SgXJ2Y10bbKhSEvlsy6clZg8iWdydhvprVUnOwNATT=w469-h625-no?authuser=2 "Gian upd")
+![img 1](https://lh3.googleusercontent.com/Ur-_6lBS5Mhg3r7jL46KwFs4XnWuXURP_8jvl0k_Z-b70RyHWLcGkT1E2u1jvgL5u7BJU0TaIPsylooiqPf0JxjRhM3n6fQjyhp-jOvadO1BiQ1Ujv03CoVSV6gCIB2P4O2Z0f10gZyAw-VVLBiZKPPxA6fbZwGpDPH5n5ktW3ZeUUJ6pXOjwaoKMJym6N_lPzQ8I7KMg1X4niPpAQLS2nP6MaKiDht98mD31RF6VzdiObgg8_b7deCd_KGaZfPWbE-BCJCu7Rf-0JgL7RwAFYtsaCeOQfFOEiijIUfF4dqgs6QCCEinrpMsIrWZKZY5iXehcMKVfP1qeSl9TrZtHtE0zdemfjWLiotdUj4zYpgeMV8louhiuUJPhJci_qfDms2jF6S8m-cVEsrJ0x0iqV5gHuT1ZzOf0Ob3-dbxch-oxr1Uk9x9jOMK6lgYWIIUwU0rK0f7P9CxS80rdSoe4uQ9AT520Ocermo1qfa7TlC-qEoe9dE60wFglH-QM4LaR3DWXKJKa-Tp2szWMWj6bLV-cWp8KUjbpIipkFff9OsCByP58pxXRiFyrj6bNqe_JyjYAvEtxOmkwZg8vidQVCbo73luAGfvJKExWHfaRBfoOaT4g9e9lMGhqOBhVzxWMdXZqWq0vtUdPCQ_eLlxIxtNem7sTHIdFJKJy7HbsBgroabwxknliyZbD_1JOXoLP5O-uUktIfvuiTJmtidDj3SSsIk2f4DmD0GRy2ZZVgN7RHQ790FrKz1ULV31JQEBb3_spYCcvTyh3O1tNtwbD5hxVyhbbt-Bu1dl1deBMHm-xQlJgsSZc8X2j0jriWcltFJ1=w352-h625-no?authuser=2 "Gian brc")
 
 ## Legajo: 2040505 ##
 
-### Mi nombre es Gianlucca Santucho. Nací en Orlando, Florida. Vivo en Flores/Caballito. Tengo 18 años. Estoy haciendo la carrera (Ingenería en Sistemas) desde 2021. ###
+### Mi nombre es Gianlucca Santucho. Nací en Orlando, Florida. Vivo en Flores. Tengo 18 años. Estoy haciendo la carrera (Ingenería en Sistemas) desde 2021. ###
 
 ### Cosas que me gustan hacer: ###
 #### *Hacer deporte, ir al gimnasio, mirar futbol, etc. ####
