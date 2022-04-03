@@ -1,6 +1,6 @@
 # Gianlucca Santucho #
 
-![Whats-App-Image-2022-04-02-at-12-53-18-PM.jpg](https://postimg.cc/rzwg463W)
+[![Whats-App-Image-2022-04-02-at-12-53-18-PM.jpg](https://i.postimg.cc/G3kfZdjM/Whats-App-Image-2022-04-02-at-12-53-18-PM.jpg)](https://postimg.cc/rzwg463W)
 
 ## Legajo: 2040505 ##
 
