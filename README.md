@@ -5,9 +5,10 @@
 ### Mi nombre es Gianlucca Santucho. Nací en Orlando, Florida. Vivo en Flores. Tengo 18 años. Estoy haciendo la carrera (Ingenería en Sistemas) desde 2021. ###
 
 ### Cosas que me gustan hacer: ###
- - #### Hacer deporte, ir al gimnasio, mirar futbol, etc. ####
+ - #### Hacer deporte, ir al gimnasio, mirar fútbol, etc. ####
  - #### Escuchar música variada (AGUANTE NIRVANA Y EL ROCK NACIONAL PAPAAAA). ####
  - #### Me gusta el buen cine y mirar series. Recomiendo The Batman, Knives Out y Se7en. ####
+ - #### Jugar al Valorant y al truco. ####
 
 
 
