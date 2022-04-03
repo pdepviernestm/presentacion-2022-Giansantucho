@@ -7,7 +7,7 @@
 ### Cosas que me gustan hacer: ###
  - #### Hacer deporte, ir al gimnasio, mirar futbol, etc. ####
  - #### Escuchar música variada (AGUANTE NIRVANA Y EL ROCK NACIONAL PAPAAAA). ####
- - #### Me gusta el buen cine y mirar series. ####
+ - #### Me gusta el buen cine y mirar series. Recomiendo The Batman, Knives Out y Se7en. ####
 
 
 
