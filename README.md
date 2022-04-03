@@ -6,7 +6,8 @@
 
 ### Cosas que me gustan hacer: ###
  - #### Hacer deporte, ir al gimnasio, mirar futbol, etc. ####
- - #### Me gusta el buen cine, escuchar música variada (AGUANTE NIRVANA Y EL ROCK NACIONAL PAPAAAA). ####
+ - #### Escuchar música variada (AGUANTE NIRVANA Y EL ROCK NACIONAL PAPAAAA). ####
+ - #### Me gusta el buen cine y mirar series. ####
 
 
 
