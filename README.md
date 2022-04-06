@@ -7,7 +7,7 @@
 ### Cosas que me gustan hacer: ###
  - #### Hacer deporte, ir al gimnasio, mirar fútbol, etc. ####
  - #### Escuchar música variada (AGUANTE NIRVANA, THE WEEKND Y LAROI) y tocar la guitarra (hago música desde chico). ####
- - #### Me gusta el buen cine y mirar series. Recomiendo The Batman, Knives Out y Se7en. ####
+ - #### Me gusta el buen cine y mirar series. De pelis, recomiendo The Batman, Knives Out y Se7en. De series, recomiendo The Walking Dead, That ´70s show y Friends. ####
  - #### Jugar al Valorant y al truco. ####
 
 
